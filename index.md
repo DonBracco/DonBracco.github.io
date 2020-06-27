@@ -12,23 +12,6 @@ Darth Vader gab es nicht befohr episode 5 und erlebt auch nur bis episode 8.
 * cooles Lichtschwert
 * von gut zu Böse
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 > Darth Vader wird am ende der episode 8 sterben
+
+<img src="https://upload.wikimedia.org/wikipedia/en/thumb/7/76/Darth_Vader.jpg/220px-Darth_Vader.jpg"/>
